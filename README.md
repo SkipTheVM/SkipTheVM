@@ -1,6 +1,6 @@
 - 👋 Hi, I’m the \\//\\/\\  
 - 👀 I’m interested in ... meteorites & magnetism 
-- 🌱 I’m currently learning ... processes and politics
+- 🌱 Learning ... processes and politics
 - 🧠 I am. ... and that's all I can be. 
 - 
 
