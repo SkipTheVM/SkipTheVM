@@ -1,4 +1,4 @@
-- 👋 Hi, I’m The \\//\\/\\  
+- 👋 Hi, I’m the \\//\\/\\  
 - 👀 I’m interested in ... Sand Dollars & Obsidian
 - 🌱 I’m currently learning ... Computer Science 
 - 💞️ I’m looking to collaborate ...
