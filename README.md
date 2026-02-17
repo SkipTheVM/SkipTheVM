@@ -1,8 +1,8 @@
 - 👋 Hi, I’m the \\//\\/\\  
-- 👀 I’m interested in ... Sand Dollars & Obsidian
-- 🌱 I’m currently learning ... Computer Science 
-- 💞️ I’m looking to collaborate ...
-- 📫 How to reach me ... Smoke Signals
+- 👀 I’m interested in ... meteorites & magnetism 
+- 🌱 I’m currently learning ... processes and politics
+- 🧠 I am. ... and that's all I can be. 
+- 
 
 <!---
 SkipTheVM/SkipTheVM is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
